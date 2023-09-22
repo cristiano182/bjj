@@ -49,10 +49,10 @@ Notes:
 
 
 
-## Em Pé
+## EM PÉ
 
-- Subida em Base
-Notes:
+- DISPUTA DE PEGADAS
+- QUEDA - DOUBLE LEG (BAIANA)
 
 
 
