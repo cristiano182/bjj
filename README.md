@@ -74,6 +74,8 @@
  
 ### EM PÉ
 - [COMECE AQUI  Introdução à Luta em pé.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/3ea5LbQ8eg)
+- [EXERCÍCIOS.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/BOnpo6lYeR)
+- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/m7YkmDLW46)
 
 - [GERAL  Disputa de pegadas em pé.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/2OMrdjJR46)
 - [GERAL  Como iniciar a luta de joelhos.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/V7y5obgd7J)
@@ -106,10 +108,8 @@
 - [TRANSIÇÃO  Chamada para guarda + chave de braço](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/gOppBR0GOJ)
 - [TRANSIÇÃO Single + double leg.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/k45dXo9QOl)
 
-- [EXERCÍCIOS.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/BOnpo6lYeR)
-- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/m7YkmDLW46)
-- 
 - [POSIÇÃO LIBERADAMão de vaca.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/V7yGqYro4J)
+
 - [PASSAGEM Antecipação de chamada para guarda.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/b4K8KvGWeX)
 
 - [FINALIZAÇÃO Chamada + triângulo e chave de braço.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/YOmwo9gled)
@@ -120,6 +120,9 @@
 ### GUARDA FECHADA
 - [COMECE AQUI  Introdução à Guarda Fechada.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/EOgWXPppO6)
 - [COMECE AQUI  Introdução.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/RONpYbvEeP)
+- [EXERCÍCIOS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/94J8KbNo7g)
+- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/2OMrm2jk46)
+- [POSIÇÃO LIBERADA Mão de vaca.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/V4VPzNRv72)
 
 - [GERAL  Manutenção da Guarda Fechada.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/BOnjzDwoOR)
 - [GERAL  Erros comuns na Guarda Fechada](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/RO9jbw2m4P)
@@ -148,7 +151,7 @@
 - [FINALIZAÇÃO  Combinação de ataque na fechada alta.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/M7qwvDnn4x)
 - [FINALIZAÇÃOChave de braço &quot;violino&quot;.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/o4EbKQzqez)
 - [FINALIZAÇÃO Variação de triângulo.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/RO9dX5qN7P)
-- [FINALIZAÇÃOEstrangulamento com a lapela](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/97BjKGYR7p)
+- [FINALIZAÇÃO Estrangulamento com a lapela](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/97BjKGYR7p)
 
 - [PASSAGEM  Como evitar a guarda fechada.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/LO0lQoDROG)
 - [PASSAGEM  Abrindo a guarda em pé.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/R4jZowqw4a)
@@ -157,16 +160,12 @@
 - [PASSAGEM  Abrindo a guarda fechada lateralmente.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/37dloR2P7L)
 - [PASSAGEM São paulo pass.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/meLzWR92On)
 
-- [EXERCÍCIOS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/94J8KbNo7g)
-- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/2OMrm2jk46)
-
-- [POSIÇÃO LIBERADA Mão de vaca.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/V4VPzNRv72)
-
-
  
 ### GUARDA ARANHA
 - [COMECE AQUI Introdução.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/RO9dX1rK7P)
 - [INTRODUÇÃO  Gola e manga,](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/o4EbKb8gez)
+- [EXERCÍCIOS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/oOD0njMbOP)
+- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/y4PKmXy0Ox)
 
 - [DEFESA Reposição de guarda aberta.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/a4RldLg37n)
 
@@ -187,8 +186,7 @@
 - [FINALIZAÇÃO  Armlock surpresa.](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/LO03X3GY7G)
 
 
-- [EXERCÍCIOS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/oOD0njMbOP)
-- [SOLO DRILLS](https://hotmart.com//pt-BR/club/mjjclass/products/2448559/content/y4PKmXy0Ox)
+
 
 
 ### GUARDA DELARIVA
